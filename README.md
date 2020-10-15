@@ -1,5 +1,5 @@
 # Greenland
-SeedBasket.In is one of India  leading e-commerce market place to buy online vegetable seeds, fruit seeds, cotton, chili seeds, grow bags and other home/terrace gardening products.
+Greenland is one of India  leading e-commerce market place to buy online vegetable seeds, fruit seeds, cotton, chili seeds, grow bags and other home/terrace gardening products.
 
 Our main strength is providing the Non-Hybrid(open pollinated)/desi vegetable seeds in kitchen garden packing.
 
